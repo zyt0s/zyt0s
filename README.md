@@ -1,2 +1,2 @@
-Im Jannik and i am learning how to code!..
+Im Jannik and i am learning how to code!
 
